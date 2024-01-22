@@ -6,4 +6,4 @@ Sou o Lucas Bomfim, um entusiasta do desenvolvimento front-end em constante evol
 
 🚀 Vamos construir juntos! Explore meus projetos, compartilhe suas ideias e junte-se à comunidade. Estou animado para aprender e crescer nessa jornada de desenvolvimento.
 
-Happy coding! 🌐✨
+Let's Rock! 🤘
